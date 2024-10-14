@@ -1,1 +1,5 @@
-# Aurelius-Navi
+- I'm Aurelius Navi
+- I'm currently studying Java and cybersecurity
+- How to reach me:
+--> aureliusnavi7@gmail.com <--
+- @aureliusn_12 -> Instagram
